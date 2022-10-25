@@ -1,0 +1,6 @@
+# SOBRE MIM 
+- 👋 olá,meu nome é KETHEEN BIAVATTI MEIRA.
+- 👀 Sou professora no Colégio Andriguetto.
+- 🌱 Leciono a disciplina de Pensamento Computacional
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
